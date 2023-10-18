@@ -1,2 +1,2 @@
-NAMA : Adithya Saputra
-NIM : 2109106096
+NAMA : Adhitya Saputra
+NIM : 2109106102
